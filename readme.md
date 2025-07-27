@@ -49,6 +49,7 @@
 
 ### 📫 Let's Connect!
 - 📧 Email: [nallamsruja@gmail.com](mailto:nallamsruja@gmail.com)
+- 💼 LinkedIn: [https://www.linkedin.com/in/nallam-sruja/](https://www.linkedin.com/in/nallam-sruja/)
 
 ---
 
